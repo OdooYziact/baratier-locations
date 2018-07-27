@@ -1,0 +1,1 @@
+# baratier-locations
